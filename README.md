@@ -1,3 +1,4 @@
 # cornershopapp.com
 
-##subdomain takeover by vimal 
+##subdomain takeover by vimal hacker
+
